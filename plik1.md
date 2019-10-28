@@ -1,2 +1,1 @@
-dwa kopytka!
-
+piec kopytköw
