@@ -1,2 +1,2 @@
-kopytko!
+dwa kopytka!
 
